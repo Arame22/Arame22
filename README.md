@@ -8,7 +8,7 @@
 
 📫 Vous pouvez me contacter par email à ng.niang1@outlook.fr ou via LinkedIn https://www.linkedin.com/in/ndeye-arame-niang-b62909229/.
 
-😄 Pronoms : Il/lui
+😄 Pronoms : Elle
 
 ⚡ Fun fact : J'adore résoudre des énigmes et des casse-têtes mathématiques !
 --->
